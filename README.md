@@ -1,1 +1,1 @@
-# Hi there 👋
+# Hi, I'm Islomjon Makhamadjanov 👋
